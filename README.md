@@ -1,4 +1,4 @@
-## 제발 카피바라 👋
+## 제발 카피바라 👏👏🏽👏🏿
 
 <!--
 **kiminjuny/kiminjuny** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
